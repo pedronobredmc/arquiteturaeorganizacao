@@ -9,6 +9,6 @@
 
 ## 3° AVALIAÇÃO
 
-**NOTA:**
+**NOTA: 9,2**
 
-# MÉDIA FINAL :
+# MÉDIA FINAL : 9,4
